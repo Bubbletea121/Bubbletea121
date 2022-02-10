@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Bubbletea121
+- 👀 I’m interested in reading, drinking bubble tea, coding, and hanging out with friends
+- 🌱 I'm working on a choose-your-own-adventure story rn ^^
+- 🌈 Discord: Bubble Tea#1492
